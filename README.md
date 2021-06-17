@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @schmickelsski
+- 👋 Hi, I’m @schmkls
 - 👀 I’m interested in culture. Enabling the kids to play, the curious to experience, and the artists to communicate, in new ways. 
 - 🌱 I’m currently learning programming. Got a lot to learn. 
 - 💞️ I’m not looking to collaborate on anything rn. 
